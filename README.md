@@ -1,1 +1,1 @@
-Isaac first code
+kwakye first code
